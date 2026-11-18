@@ -1,0 +1,29 @@
+#running #workout 
+
+- Ankle Circles `10reps each` 
+	- ![392](https://i.pinimg.com/originals/9e/31/71/9e317140722fd94e0682e64faac24775.gif)
+- Walking Knee Hugs `10sec each`
+	- ![247](https://i0.wp.com/www.muscleandfitness.com/wp-content/uploads/2014/02/516_B.jpg?w=800&h=630&crop=1&quality=86&strip=all)
+-  Walking Quad Stretch `10sec each`
+	- ![218](https://fitnessprogramer.com/wp-content/uploads/2021/08/Standing-Quadriceps-Stretch.gif)
+- Leg Swings `10reps each`
+	- ![358](https://cdn.jefit.com/assets/img/exercises/gifs/896.gif)
+- Side Leg Swings `10reps each` 
+	- ![384](https://cdn.jefit.com/assets/img/exercises/gifs/1420.gif)
+-  March in Place `30sec`
+	- ![304](https://i.makeagif.com/media/9-12-2015/RGmL41.gif)
+- Hip Circles `10reps each`
+	- ![260](https://i.pinimg.com/originals/12/31/e2/1231e24fc3d7944e38b180c51067689d.gif)
+- Lunges `10reps each`
+	- ![207](https://media.tenor.com/-YiEMDDCOwoAAAAM/afundo.gif)
+- Heel-to-Toe Rock `25reps`
+	- ![317](https://www.vissco.com/wp-content/uploads/animation/sub/toe-walk-sideways.gif)
+- Arm Circles `10 forward, 10 backward`
+	- ![454](https://workoutlabs.com/train/wp-content/uploads/2023/05/Arm_Circles_M_WorkoutLabs_anim-c.gif)
+- Torso Rotations `10reps each side`
+	- ![394](https://cdn.jefit.com/assets/img/exercises/gifs/677.gif)
+- A-Skips `10reps each`
+	- ![366](https://workoutlabs.com/train/wp-content/uploads/2023/05/Power_Skips_M_WorkoutLabs_anim-c.gif)
+- Jumping Jacks `30sec`
+	- ![369](https://cdn.shopify.com/s/files/1/0618/9462/3460/files/original-b7327e47be94975940e98b26277e5ead.gif?v=1744619058)
+- Go for **RUNNING**
